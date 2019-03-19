@@ -1,2 +1,2 @@
-## Welcome to XiaoLu Pages
+## Welcome Lu Pages
 
